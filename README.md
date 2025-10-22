@@ -1,4 +1,4 @@
-#### Hi 👋, I'm Dicky Aditya. 
+#### Hi 👋, I'm Dwi Andina Putri. 
 ##### Saya Mahasiswa Teknik Informatika.
 
 💻Saat ini saya sedang belajar pemrograman mobile:
